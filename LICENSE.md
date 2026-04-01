@@ -1,4 +1,4 @@
-
+Free undr fish it Scripts | auto-catch + inst-fish brings you the best free scripts for fish it, featuring auto-catch and inst-fish. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
